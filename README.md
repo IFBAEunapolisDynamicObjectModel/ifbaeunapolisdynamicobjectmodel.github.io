@@ -1,4 +1,4 @@
-## Bem vindo ao DanGo LanGo 
+## Bem vindo ao DomGo LanGo 
 
 ### Descrição
 
